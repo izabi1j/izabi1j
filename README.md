@@ -12,4 +12,4 @@ izadorab.ribeiro@gmail.com
 
 @iza_bisetto
 
-![](https://tenor.com/pt-BR/view/dance-kid-cute-moves-sunglasses-gif-17376721)
+![](https://media1.tenor.com/m/uH2XImcEz6EAAAAC/dance-kid.gif)
