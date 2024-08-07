@@ -10,6 +10,6 @@ Meu nome é Izadora
 
 izadorab.ribeiro@gmail.com 
 
-@izabisetto
+@iza_bisetto
 
 ![](https://tenor.com/pt-BR/view/dance-kid-cute-moves-sunglasses-gif-17376721)
